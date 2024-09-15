@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @gil-peled, I'm interested in Economics, you can reach me at gpeled@ucsd.edu
+- 👋 Hi, I’m @gil-peled, I'm interested in Economics, you can reach me at gjpeled@gmail.com
  
 
 <!---
